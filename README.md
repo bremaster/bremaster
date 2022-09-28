@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Ambitious professional who is always eager for new, difficult problem solving as well as solid background of software engineering and blockchain for the last 4 years in industry level of experience.
+
+Now he is going to lead small software team of Japanese based professionals including top rated designers, software engineers, and has an aim to be the top freelancer on this platform as well as other freelancing platforms.
+
+Best regards
